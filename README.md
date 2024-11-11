@@ -2,7 +2,7 @@
 
 
 
-## Vendithera was the second event organized by college's film making club, Chitrakala on 29th of June, 2024.
+## Vendithera was the second event organized by my college's film making club, Chitrakala on 29th of June, 2024.
 ### **VENDITHERA** was a really fun event where we screened two of the most cult classic movies, Pokiri and Jalsa in our college's auditorium.
 
 <br/>
